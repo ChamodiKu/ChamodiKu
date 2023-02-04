@@ -7,7 +7,7 @@
 	
 	🕵️‍♂️How to reach me:
    		• Linkdin:-https://www.linkedin.com/in/chamodi-kulathunga-348849142
-    		• Twitter:-https://twitter.com/ChamodiKulathu1
+    	• Twitter:-https://twitter.com/ChamodiKulathu1
     		• Facebook:-https://www.facebook.com/chamodi.ku
 	
         
